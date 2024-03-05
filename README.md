@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something interesting
 - 📫 How to reach me: chat me on dc!! usn: deznug :>
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: i'm aroace, i love playing game, i love drawing some stuff, i like coding smh, i love my homie, but i hated myself 
+- ⚡ Fun fact: i'm still learning
 
 
 <!---
